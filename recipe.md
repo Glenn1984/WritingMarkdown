@@ -5,7 +5,7 @@
 | **Category** | **Difficulty** |
 | Brekkie & Lunch, Quick Fixes | Intermediate |
 
-Being vegan while studying doesn’t have to be expensive or hard. This easy pasta dish is the PERFECT example of this. You don’t need a lot of ingredients to have a dinner BURSTING with flavour!!!
+Being vegan while studying doesn’t have to be expensive or hard. This easy pasta dish is the PERFECT example of this. You don’t need a lot of ingredients to have a dinner BURSTING with flavour!!
 
 <a href="https://youtu.be/4l6P89DnZu0
 " target="_blank"><img src="https://youtu.be/4l6P89DnZu0" 
